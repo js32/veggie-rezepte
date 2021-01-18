@@ -1,9 +1,9 @@
-## Chana Masala
+# Chana Masala
 
-# Einkaufsliste:
+## Einkaufsliste:
 * 4 Zwiebeln
 * 1 Dose gestückelte Tomaten
-* 1 Dose Kichererbsen (oder gerne auch 8h vorher aus trockenen Kichererbsen) *Wasser aufheben!
+* 1 Dose Kichererbsen (oder gerne auch 8h vorher aus trockenen Kichererbsen) Wasser aufheben!
 * Knoblauchpaste
 * Ingwerpaste
 * Rotes Chilli-Pulver
@@ -18,7 +18,7 @@
 * getrocknete Granatapfel-Samen
 * frischen Koriander
 
-# Saucen-Basis in der Pfanne:
+## Saucen-Basis in der Pfanne:
 * ca. 2EL Pflanzenöl erhitzen
 * 3 große Zwiebeln klein gewürfelt anbräunen und danach mit jeweils 1EL * Ingwer- und 1 EL Knoblauchpaste verühren - eine Minute leicht anbraten lassen
 * 1 Dose gestückelte Tomaten hinzugeben und salzen
@@ -28,7 +28,8 @@
 * abkühlen, 1EL der Kicherebsen hinzufügen und pürieren 
 * zur Seite stellen
 
-# Chana Masala
+
+## Chana Masala
 * in der Pfanne – ohne Öl – 1 Lorbeerblatt, 1 Zimt-Stange, 3 Nelken und 3 * grüne Kardamon-Bohnen im Ganzen 30-60sec. in der heißen Pfanne vorsichtig anrösten
 * ca. 3EL Öl und 1 klein gehackte Zwiebel hinzugeben und anbräunen
 * jetzt die zur Seite gestellte Saucen-Basis sowie 1EL Garam Masala, 1/4TL getrocknete und zerdrückte Granatapfel-Kerne, 1 1/2 TL gemahlenen Koriander hinzufügen und 10min bei mittlerer Hitze und stetem Rühren anbraten/reduzuieren
