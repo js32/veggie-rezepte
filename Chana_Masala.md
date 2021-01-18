@@ -25,7 +25,7 @@
 * bei mittlerer bis hoher Hitze 10min anbraten
 1/2 EL (nach gewünschter Schärfe) Chilli-Pulver und einen 1/4 TL Kurkuma hinzugeben
 * das Ganze 10min bei geschlossenem Deckel simmern lassen
-* abkühlen, 1EL der Kicherebsen hinzufügen und pürieren 
+* abkühlen lassen, 1EL der Kichererbsen hinzufügen und pürieren 
 * zur Seite stellen
 
 
