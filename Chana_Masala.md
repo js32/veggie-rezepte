@@ -20,7 +20,7 @@
 
 ## Saucen-Basis in der Pfanne:
 * ca. 2EL Pflanzenöl erhitzen
-* 3 große Zwiebeln klein gewürfelt anbräunen und danach mit jeweils 1EL * Ingwer- und 1 EL Knoblauchpaste verühren - eine Minute leicht anbraten lassen
+* 3 große Zwiebeln klein gewürfelt anbräunen und danach mit jeweils 1EL Ingwer- und 1 EL Knoblauchpaste verühren - eine Minute leicht anbraten lassen
 * 1 Dose gestückelte Tomaten hinzugeben und salzen
 * bei mittlerer bis hoher Hitze 10min anbraten
 1/2 EL (nach gewünschter Schärfe) Chilli-Pulver und einen 1/4 TL Kurkuma hinzugeben
