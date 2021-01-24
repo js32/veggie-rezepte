@@ -3,14 +3,14 @@
 
 ***
 
-1. Zutaten:
+# Zutaten:
 
 * zwei Esslöffel Chia-Samen
 * 200 ml Kokosmilch (leicht)
 * zwei Teelöffel Zucker
 * gefrorene Beeren oder Mango
 
-2. Zubereitung
+# Zubereitung
 
 * Chia-Samen in Kokosmilch einrühren, sodass sich die Klumpen auflösen.
 Zucker dazu geben und einrühren.
