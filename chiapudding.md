@@ -1,16 +1,16 @@
-## Chia Pudding
+# Chia Pudding
 ##### für zwei Leude
 
 ***
 
-# Zutaten:
+## Zutaten:
 
 * zwei Esslöffel Chia-Samen
 * 200 ml Kokosmilch (leicht)
 * zwei Teelöffel Zucker
 * gefrorene Beeren oder Mango
 
-# Zubereitung
+## Zubereitung
 
 * Chia-Samen in Kokosmilch einrühren, sodass sich die Klumpen auflösen.
 Zucker dazu geben und einrühren.
