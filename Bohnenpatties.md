@@ -1,9 +1,9 @@
-## Bohnen Patties
+# Bohnen Patties
 ##### für zwei bis vier Personen
 
 ***
 
-1. Zutaten:
+## Zutaten:
 
 * 1 Dose Kidney- oder besser schwarze Bohnen
 * Halbe Tasse Haferflocken 
@@ -21,9 +21,8 @@
 * Größere zehe Knoblauch
 * Für Deluxe-Variante 80g Pinienkerne
 
-***
 
-1. Zubereitung:
+## Zubereitung:
    
 * Zwiebel, Basilikum & Petersilie fein hacken, Knoblauch pressen
 * Bohnen gut abspülen und abtropfen lassen
