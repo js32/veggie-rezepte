@@ -44,4 +44,4 @@
 Glattrühren, Konsistenz mit Mandelmuss, Essig und Wasser einstellen.
 
 ## Am besten mit:
-Guacamole (Acocado, Zitronensaft, Knoblauch, Salz,Pfeffer), frischem Salat, Tomate, wer mag.
+Guacamole (Avocado, Zitronensaft, Knoblauch, Salz, Pfeffer), frischem Salat, Tomate, wer mag.
