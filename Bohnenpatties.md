@@ -14,7 +14,7 @@ für zwei bis vier Personen
 * 1 Teelöffel:
   * Kurkuma
   * Zimt
-* 1 Esslöffel
+* 1 Esslöffel:
   * Senf
   * Tomatenmark
 * Salz, Pfeffer
