@@ -1,6 +1,8 @@
+
 # Griechischer Krautsalat
 
 ## Einkaufsliste
+
 * Weißkohl
 * 2 Zwiebeln
 * 1 grüne Paprika
@@ -12,6 +14,7 @@
 * 500ml Sprudelwasser
 
 ## Zubereitung
+
 * Kohl vierteln und Strunk herausschneiden
 * zusammen mit den Zwiebeln und der Paprika in eine große Schüssel raspeln
 * eine Tasse Olivenöl
