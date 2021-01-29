@@ -15,20 +15,19 @@ Salz, Pfeffer,Cayenne to taste
 ## Zubereitung
 
 * Bei kleiner Hitze
-  *  Zwiebeln grob würfeln, zusammen mit angedrücktem Knoblauch in etwas Öl (kann auch mehr sein) glasig dünsten, fein gewürfelten Sellerie dazu geben
+  * Zwiebeln grob würfeln, zusammen mit angedrücktem Knoblauch in etwas Öl
+  (kann auch mehr sein) glasig dünsten, fein gewürfelten Sellerie dazu geben
+  * Kartoffeln in mittlere Würfel schneiden und auch etwas andünsten, bis sie
+  am Rand leicht mehlig werden
+  * Linsen dazu geben und auch etwas erhitzen, nicht braten
+  * Tomatenmark dazu und das etwas karamellisieren lassen
 
-* Kartoffeln in mittlere Würfel schneiden und auch etwas andünsten, bis sie am Rand leicht mehlig werden
-
-* Linsen dazu geben und auch etwas erhitzen, nicht braten
-
-* Tomatenmark dazu und das etwas karamellisieren lassen
-
-* mit Wasser aufgießen, bis die Linsen zwei, drei Zentimeter unter der Oberfläche sind
+  * mit Wasser aufgießen, bis die Linsen zwei, drei Zentimeter unter der
+  Oberfläche sind
 
 * Hitze erhöhen, bis das siedet, dann bei kleiner Hitze abgedeckt kochen bis gar
-
 * Salz, Pfeffer, Cayenne
-
 * Zauberstab, fertig.
 
-Eigentlich kommt noch Paprikaöl drauf und eventuell getrocknete Minze, hab ich aber nicht da.
+Eigentlich kommt noch Paprikaöl drauf und eventuell getrocknete Minze, hab ich
+aber nicht da.
