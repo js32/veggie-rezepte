@@ -1,4 +1,7 @@
-## Alles nach Gefühl:
+
+# Türkische Linsensuppe
+
+## Alles nach Gefühl
 
 * 2 mittelgroße Zwiebeln
 * 2-3, oder vllt. besser vier Knoblauchzehen
@@ -9,21 +12,20 @@
 Ich mache noch etwas knollensellerie fürs Umami rein: etwa 7* 3* 3cm
 Salz, Pfeffer,Cayenne to taste
 
-***
 ## Zubereitung
 
-* Bei kleiner Hitze:
+* Bei kleiner Hitze
   *  Zwiebeln grob würfeln, zusammen mit angedrücktem Knoblauch in etwas Öl (kann auch mehr sein) glasig dünsten, fein gewürfelten Sellerie dazu geben
 
 * Kartoffeln in mittlere Würfel schneiden und auch etwas andünsten, bis sie am Rand leicht mehlig werden
 
-* Linsen dazu geben und auch etwas erhitzen, nicht braten!
+* Linsen dazu geben und auch etwas erhitzen, nicht braten
 
 * Tomatenmark dazu und das etwas karamellisieren lassen
 
 * mit Wasser aufgießen, bis die Linsen zwei, drei Zentimeter unter der Oberfläche sind
 
-* Hitze erhöhen, bis das siedet, dann bei kleiner Hitze abgedeckt kochen bis gar.
+* Hitze erhöhen, bis das siedet, dann bei kleiner Hitze abgedeckt kochen bis gar
 
 * Salz, Pfeffer, Cayenne
 
