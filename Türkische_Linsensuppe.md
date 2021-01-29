@@ -10,7 +10,7 @@
 * eine mittelgroße mehlingkochende Kartoffel
 
 Ich mache noch etwas knollensellerie fürs Umami rein: etwa 7* 3* 3cm
-Salz, Pfeffer,Cayenne to taste
+Salz, Pfeffer, Cayenne to taste
 
 ## Zubereitung
 
