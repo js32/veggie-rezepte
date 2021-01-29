@@ -1,10 +1,9 @@
 
 # Titel
-##### Untertitel
 
-***
+Untertitel
 
-## Zutaten:
+## Zutaten
 
 *
 *
@@ -13,4 +12,3 @@
 ## Zubereitung
 
 *
-
