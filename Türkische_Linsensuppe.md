@@ -10,7 +10,7 @@
 * ~~eine mittelgroße mehlingkochende Kartoffel~~
 * 3 Esslöffel Risottoreis
 
-Ich mache noch etwas knollensellerie fürs Umami rein: etwa 7* 3* 3cm
+Ich mache noch etwas knollensellerie fürs Umami rein: etwa 7* 3* 3cm.
 Salz, Pfeffer, Cayenne to taste
 
 ## Zubereitung
